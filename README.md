@@ -1,2 +1,1 @@
-# -ILU-KARINA
-uuuuuuuuu magneeetic
+.
